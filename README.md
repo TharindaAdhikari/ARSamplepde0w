@@ -1,1 +1,0 @@
-# ARSamplepde0w
